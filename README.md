@@ -1,2 +1,8 @@
 # JoannersFiles
 PiecesOfMe
+
+
+MIS HOBBIES:
+*CINE
+*PROGRAMACIÓN
+*MÚSICA
